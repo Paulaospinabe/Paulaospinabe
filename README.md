@@ -8,7 +8,7 @@ Habilidades: JavaScript / SQL / API / React / Python / CSS / HTML
 
 - 🌱 Estoy aprendiendo mas sobre este mundo de desarrollador. 
 - 👯 Quiero colaborar con proyectos que puedan revolucionar y cambiar la vista del mundo tecnológico. 
-- ⚡ Dato curioso: Tengo 17 años, con intereses en el anime, manga y música de todo tipo además de tener grandes habilidades en el diseño y el dibujo. 
+- ⚡ Dato curioso: Tengo 18 años, con intereses en el anime, manga y música de todo tipo además de tener grandes habilidades en el diseño y el dibujo. 
 
 
 [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/github.svg' alt='github' height='40'>](https://github.com/https://github.com/Paulaospinabe)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/linkedin.svg' alt='linkedin' height='40'>](https://www.linkedin.com/in/https://www.linkedin.com/in/paula-alejandra-ospina-berm%C3%BAdez-8110b523b//)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/https://www.instagram.com/_draw_with_powo_//)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/twitter.svg' alt='twitter' height='40'>](https://twitter.com/https://twitter.com/_PA_OB_)  [<img src='https://cdn.jsdelivr.net/npm/simple-icons@3.0.1/icons/instagram.svg' alt='instagram' height='40'>](https://www.instagram.com/o.w.o_666/)  
